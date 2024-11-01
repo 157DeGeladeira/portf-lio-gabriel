@@ -56,7 +56,7 @@ Sinta-se à vontade para explorar e deixar sugestões! Estou aberto a feedbacks 
 
 Vamos nos conectar! Você pode me encontrar nas redes sociais:
 
-- [Instagram](https://www.instagram.com/seuusuario)
-- [WhatsApp](https://wa.me/seunumerodetelefone)
+- [Instagram](https://www.instagram.com/biell.zxy)
+- [WhatsApp](https://wa.me/43998471658)
 
 Obrigado por visitar meu perfil! Juntos, podemos promover um estilo de vida ativo e saudável. 💪
