@@ -13,7 +13,6 @@ Olá! 👋 Eu sou [Gabriel de Souza Silva], aluno do ensino médio e apaixonado 
 
 ## 🚀 Projetos em Destaque
 
-- **[FitTrack]**: Claro! Aqui está uma ideia de projeto com um título e descrição para você usar no seu README.
 
 ### Projeto: **FitTrack - Monitoramento de Atividades Físicas**
 
